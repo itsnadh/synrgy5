@@ -9,3 +9,5 @@
 6. Shofia
 7. Tiara
 8. Wahyu
+
+**Semangat!!!**
